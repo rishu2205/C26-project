@@ -1,0 +1,3 @@
+This perfect combination of oil, milk and boiling water makes this recipe stand out without having to use melted chocolate. The fats in the oil, protein in milk and temperature of the water makes the chocolate flavour develop nicely while baking and providing the essentials for that moist crumb you’re looking for.
+
+Don’t over-mix OR over-bake. This chocolate cake only needs about 30-35 minutes in the oven, or until a wooden skewer inserted into the centre comes out clean.
